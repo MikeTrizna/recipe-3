@@ -1,3 +1,6 @@
+![A bowl of guac](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Guacamole_IMGP1271.jpg/640px-Guacamole_IMGP1271.jpg)
+CC-SA Nikodem Nijaki https://commons.wikimedia.org/wiki/File:Guacamole_IMGP1271.jpg 
+
 Ingredients:
 - 2 avocados (ripe)
 - juice of 1 lemon
