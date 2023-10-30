@@ -1,7 +1,7 @@
 Ingredients:
 - 2 avocados (ripe)
 - juice of 1 lemon
-- 1/3 c. chopped green chiles
+- 1/3 c. chopped green chiles (most of one 4 oz can)
 - salt to taste (1/4tsp or so)
 
 Instructions:
